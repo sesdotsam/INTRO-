@@ -24,9 +24,9 @@ DNI: homo/transphobes, proshippers, basic dni , himiko//maki haters/hj
 
 DNIUF: SaiOu - Nuzi - Amaguji - Jotakak - Labru - Celesgiri - Bakudeku
 
-INT: Short answer: anything my pony has on it's head, long answer: Hinanami // Kamunami - Komanami - Saimatsu - SaiMaki - Momoharu - Oumami - Oumatsu - Naegiri - Sakuraoi - Natsuri - Thadzi - eNVy - GiyuShino - Tankana - Momokarun - Kachhako - IzuOcha - Rankane - Ranpoe - Kunizai - Soukoku - Shin Soukoku - Twiyor - Evamon - Wolfgrace - Jettski
+INT: Short answer: anything my pony has on it's head, long answer: Hinanami // Kamunami - Komanami - Saimatsu - SaiMaki - Momoharu - Oumami - Oumatsu - Naegiri - Sakuraoi - Natsuri - Thadzi - eNVy - GiyuShino - Tankana - Momokarun - Kachhako - IzuOcha - Rankane - Ranpoe - Kunizai - Soukoku - Shin Soukoku - Twiyor - Evamon - Wolfgrace - Jettski - Desloise - Ulywen
 
-HI SCORE GIRL FANS (i know were alive) , DanDaDan, Danganronpa. Demon slayer, BSD, Mouthwashing, II, octonauts, slime rancher and BFDI fans :33
+HI SCORE GIRL FANS (i know were alive) , DanDaDan, Danganronpa. Demon slayer, BSD, Mouthwashing, p:eg, II, octonauts, slime rancher and BFDI fans :33
 
 ★
 
